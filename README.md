@@ -6,8 +6,6 @@
 
 - 📫 How to reach me **huycaohuynh@gmail.com**
 
-- 📄 Know about my experiences [file:///C:/Users/huyca/Downloads/Resume_%20Huy%20Huynh%20(5).pdf](file:///C:/Users/huyca/Downloads/Resume_%20Huy%20Huynh%20(5).pdf)
-
 - ⚡ Fun fact **I speak two languages!**
 
 <h3 align="left">Connect with me:</h3>
